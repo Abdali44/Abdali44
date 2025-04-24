@@ -1,3 +1,5 @@
+![chrome_qrcode_1745445964769](https://github.com/user-attachments/assets/de6619b8-65f0-45e7-b95e-3a7a5cc9926a)
+![٢٠٢٥٠٠٢٣٠٤٠٠٢٧](https://github.com/user-attachments/assets/dd2c9d9c-ab3e-46b7-b764-f48f565907ee)
 ## Hi there 👋
 
 <!--
